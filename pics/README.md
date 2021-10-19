@@ -1,1 +1,1 @@
-#Pics for ChatBot Didact 
+# Pics for ChatBot Didact 
