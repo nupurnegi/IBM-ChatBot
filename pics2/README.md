@@ -1,0 +1,1 @@
+New photos for didact
